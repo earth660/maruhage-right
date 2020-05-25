@@ -1,0 +1,1 @@
+![マルハゲライト](https://1.bp.blogspot.com/-hUtcsz0pdGM/Wi4gIobwD0I/AAAAAAABIt0/DfTcWfnfz9cKOt8vjkR98TjFqhRWCThFACLcBGAs/s800/hair_usuge_young.png "マルハゲライト")
